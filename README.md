@@ -1,2 +1,2 @@
-# SimpleWeb
-Install X-Ray-goggles in https://simpleweb4free.netlify.app
+# Justin
+ 🔥 The Website Wiki Of The Justin Farted Wiki
